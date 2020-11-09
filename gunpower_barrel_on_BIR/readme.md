@@ -1,2 +1,12 @@
-已同中国签订共建“一带一路”合作文件的国家一览         
-https://www.yidaiyilu.gov.cn/info/iList.jsp?tm_id=126&cat_id=10122&info_id=77298   
+[已同中国签订共建“一带一路”合作文件的国家一览](https://www.yidaiyilu.gov.cn/info/iList.jsp?tm_id=126&cat_id=10122&info_id=77298)     
+      
+ 对中国来说，最重要的国家   
+ 中亚6斯坦: 哈萨克斯坦，吉尔吉斯斯坦，塔吉克斯坦，乌兹别克斯坦，土库曼斯坦，巴勒斯坦    
+ 阿富汗    
+ 高加索3国: 格鲁吉亚，亚美尼亚，阿塞拜疆    
+ 
+
+
+
+
+  
